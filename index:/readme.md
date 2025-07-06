@@ -9,3 +9,8 @@
 - https://www.alibaba.com/product-detail/Portable-Smart-Tyre-Inflator-LED-Light_1601420871412.html
 - https://www.alibaba.com/product-detail/Emergency-Starter-Tool-12V-Jumpstarter-With_1601238369146.html
 - https://www.alibaba.com/product-detail/DEFNOCO-Manufacture-Cheap-Price-Car-Jumper_1601371089010.html
+- https://www.alibaba.com/product-detail/LOOYBAT-12V-Car-Battery-Charge-Jump_1601370742555.html
+- https://www.alibaba.com/product-detail/Sharmeal-Lithium-Battery-Portable-Jump-Starter_1600999201620.html
+- https://www.alibaba.com/product-detail/2025-Portable-Car-Jump-Starter-with_1601425347403.html
+- https://www.alibaba.com/product-detail/12v-Car-Jumper-Battery-Booster-Pack_1601228676486.html
+- https://www.alibaba.com/product-detail/Portable-Jumpstarter-Car-Power-Bank-12v_1600773632516.html
